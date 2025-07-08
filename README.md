@@ -1,2 +1,2 @@
 # luxury
-Discord Bot
+spaßßßßßßßß hier ist kein source code geprankt 😅😂
